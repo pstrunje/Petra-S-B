@@ -36,7 +36,7 @@ I'm a passionate web developer, excited about building responsive and user-frien
 
 ### 📫 How to Reach Me
 ✉️ Email: petraa.str@gmail.com
-💼 LinkedIn: [Your LinkedIn Profile](https://de.linkedin.com/in/petra-strunje-munchen)
+💼 LinkedIn: [My Profile](https://de.linkedin.com/in/petra-strunje-munchen)
 🌍 
 
 #### 🎉 Fun Fact
